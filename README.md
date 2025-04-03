@@ -80,7 +80,7 @@ Partner with us as an agency to provide comprehensive accessibility solutions to
 
 #### **[Affiliated Partnership](https://www.skynettechnologies.com/affiliate-partner)**
 
-Join our affiliate program and earn commissions by promoting All in One Accessibility™. Share our Widget with your network and help businesses improve their website accessibility while generating revenue.
+Join our affiliate program and earn commissions by promoting All in One Accessibility®. Share our Widget with your network and help businesses improve their website accessibility while generating revenue.
 
 For more details, Please visit **[Partnership Opportunities Page](https://www.skynettechnologies.com/partner-program)**
 
